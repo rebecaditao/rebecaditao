@@ -1,5 +1,5 @@
 ## Oi besties, me chamo Rebeca, tenho 15 anos e 
-## moro em marte. Gosto de jogar volei e amo gatos.🐈‍⬛ 🏐
+## moro no Brasil. Gosto de jogar volei e amo gatos.🐈‍⬛ 🏐
 ## miha comida favorita é macarrão 🍝. Tambem gosto de bolo de cenoura com calda de chocolate 🍫🍰. 
 
 <!--
